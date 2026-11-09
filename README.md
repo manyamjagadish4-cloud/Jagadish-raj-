@@ -1,0 +1,2 @@
+# Jagadish-raj-
+For studies 
